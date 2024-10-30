@@ -32,4 +32,4 @@ Per maggiori informazioni, visita il nostro sito [GeniAi](https://geniai.it) o c
 
 ---
 
-© 2023 GeniAi – Tutti i diritti riservati
+© 2024 GeniAi – Tutti i diritti riservati
